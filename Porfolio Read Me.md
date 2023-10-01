@@ -1,3 +1,4 @@
 # design_projects
-A repository of my freelance design work
+my portfolio has changed location: https://1nuitpour7jour.myportfolio.com/
+Please proceed to the url above, apologies for the inconvenience.
 
